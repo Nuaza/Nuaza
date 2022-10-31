@@ -1,4 +1,4 @@
-### 这里是Nuaza，一只大三的咸鱼，正在准备考研中👩‍💻
+### 这里是Nuaza，一只研一的科研狗🐶
 
 ### Contact me 📣
 - gealpety@outlook.com
