@@ -1,4 +1,4 @@
-### 这里是Nuaza，一只研一的科研狗🐶
+### This is Nuaza, a graduate student majoring in CV field.
 
 ### Contact me 📣
 - gealpety@outlook.com
