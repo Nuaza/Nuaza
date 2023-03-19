@@ -2,4 +2,4 @@
 
 ### Contact me 📣
 - gealpety@outlook.com
-- http://github.com/Nuaza
+- https://twitter.com/gealpety
